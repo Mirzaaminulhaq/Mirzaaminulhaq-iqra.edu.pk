@@ -1,0 +1,1 @@
+# Mirzaaminulhaq-iqra.edu.pk
